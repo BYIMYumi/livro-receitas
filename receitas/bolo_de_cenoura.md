@@ -21,3 +21,5 @@
 3. Em uma vasilha grande, peneire a farinha de trigo, o fermento em pó e o bicarbonato de sódio.
 4. Adicione o creme de cenoura na vasilha com os ingredientes secos e misture levemente, até a massa ficar lisa.
 5. Transfira a massa para a forma reservada e leve para assar até dourar, cerca de 40-45 minutos. O tempo pode variar de forno para forno, então preste atenção. Um palito inserido no meio deve sair seco. Espere esfriar antes de cortar e servir.
+
+![Logo Carrefour](https://cybercook-assets.storage.googleapis.com/icons/carrot.svg)
